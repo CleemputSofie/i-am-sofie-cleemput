@@ -2,6 +2,7 @@
 
 Analyst with development skills | Accounting and banking | Acknowledging the importance of testing and quality
 
+<br>
 
 **MORE ABOUT ME**
 
