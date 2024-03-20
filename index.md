@@ -1,6 +1,7 @@
 
-
-Analyst with development skills | Accounting and banking | Acknowledging the importance of testing and quality
+![Sofie](https://media.licdn.com/dms/image/C4D03AQGPJZC-UXMsKw/profile-displayphoto-shrink_800_800/0/1578578425879?e=1716422400&v=beta&t=zZOsLdpjOrqNbicHLMk_kVKCRAYUrre9YjTwjV5KtIg) | Analyst with development skills
+Accounting and banking
+Acknowledging the importance of testing and quality
 
 <br>
 
