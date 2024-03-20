@@ -1,3 +1,6 @@
+Analyst with development skills | Accounting and banking | Acknowledging the importance of testing and quality
+
+
 **MORE ABOUT ME**
 
 My name is Sofie and I am an accounting and banking professional with a strong passion for bridging the gap between business and IT. I started my career in banking as a process analyst and later grew into a developer (team lead) role, developing accounting software. With over 10 years of experience in the industry, I have developed a deep understanding of both analytical and development roles. Currently, I focus on the importance of testing and quality assurance while working with agile methodologies.
